@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @jypma-prlg
+- I work at PinkRoccade Local Government
 - 👀 I’m interested in sound architecture
 - 📫 You can reach me @ https://www.linkedin.com/in/jarichypma/
 
